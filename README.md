@@ -1,0 +1,2 @@
+# Legal_aspects_of_information_security_and_cybersecurity
+İnformasiya Təhlükəsizliyi və Kibertəhlükəsizliyin Hüquqi Aspektləri
